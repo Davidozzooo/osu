@@ -1,7 +1,7 @@
 # [Amaestric](https://www.mediafire.com/file/d3itwzpoy5zmyuh/Amaestric.osk/file)
 ![](https://i.ibb.co/XbdB8gB/skin-prev.png)
 
-# [AMAESTRIC2020](https://www.mediafire.com/file/av3vd09zhh3wyaa/AMAESTRiC2020.osk/file)
+# [AMAESTRiC2020](https://www.mediafire.com/file/av3vd09zhh3wyaa/AMAESTRiC2020.osk/file)
 ![](https://osu.ppy.sh/ss/16310848/2818)
 
 # [Karthy v6.0+DT](https://mega.nz/file/NMsgTa7Z#Y9BMVOeTmr6pEHLxVnvcrafM3snENw0mcZDC5dY_2-4)
